@@ -6,4 +6,4 @@
 
 아직안됨 
 
-[tjfrPeh](https://docs.google.com/document/d/1d7bFaQs8Z2JUYpIWrAHMu8bixb-HdAB3iJCQYiZW3Jc/edit?usp=sharing)
+[tjfrP](https://docs.google.com/document/d/1d7bFaQs8Z2JUYpIWrAHMu8bixb-HdAB3iJCQYiZW3Jc/edit?usp=sharing)
